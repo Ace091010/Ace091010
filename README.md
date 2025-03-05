@@ -1,5 +1,4 @@
 ## Hi there 👋
-<!--
 HIIII my names Ella but you can call me Ace as well.
 
 Music: TV Girl, The Offspring, twenty one pilots, Alec Benjamin, the killers, My Chemical Romance, all american rejects.
