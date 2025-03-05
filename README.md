@@ -4,9 +4,14 @@ HIIII my names Ella but you can call me Ace as well.
 Music: TV Girl, The Offspring, twenty one pilots, Alec Benjamin, the killers, My Chemical Romance, all american rejects.
 
 Color COMBOS:
-FFB668+DDD5F3=
-ffe2e6+000000=
-FFFBC8+B99976=![download-2](https://github.com/user-attachments/assets/adfc6ad9-7b6e-46ab-9bcd-40d9849bf8f2)
+FFB668+DDD5F3
+
+ffe2e6+000000
+
+FFFBC8+B99976
+
+
+![download-2](https://github.com/user-attachments/assets/adfc6ad9-7b6e-46ab-9bcd-40d9849bf8f2)
 
 FAVORITES:
 PEOPLE: GUESS!!!!!!
