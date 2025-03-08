@@ -38,6 +38,8 @@ people I love: MF, JM, DH, JR, DR, MR, CG, EH, NK, BB, LC, MR
 
 POOKIES: MAVERICK AND LUNA TEHEHEHE (and some1 else :3) 
 
+My favorite person ever is Danini because hes unique and special and i love him :3
+
 quotes I like:
 "The devil doesn't come as a man with red horns, he comes as everything you ever wished for."
 "hell is empty, all the devils are here"
